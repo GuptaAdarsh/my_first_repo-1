@@ -1,1 +1,1 @@
-aryansh omray
+Adarsh Gupta
